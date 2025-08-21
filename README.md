@@ -17,7 +17,7 @@
 ---
 
 ## 📫 Como me encontrar ?
-- LinkedIn: [Seu perfil](https://www.linkedin.com/in/miguel-oliveira-94a769297/)
+- LinkedIn: [Meu perfil](https://www.linkedin.com/in/miguel-oliveira-94a769297/)
 - E-mail: miguelaugst1703@gmail.com
 
 ---
